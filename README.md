@@ -1,1 +1,1 @@
-### Darslikdagi yangiliklar
+### Darslikdagi yangiliklarr
